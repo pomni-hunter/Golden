@@ -1,2 +1,2 @@
 # Golden
-I love my self
+I love my self. Me too!
